@@ -1,0 +1,2 @@
+# EXAMEN-CIERRE-TEMA_RamosRiveraManuelIsai17212931
+EXAMEN CIERRE TEMA 3, 3.4 Reconocimiento de caracteres OCR- CIERRE DE SEMESTRE
